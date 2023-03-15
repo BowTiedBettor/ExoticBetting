@@ -1,4 +1,3 @@
-Parimutuel exotic pool betting... 
+exooooootic betting 
 
-- 13 football games
-- Three outcomes in each game
+'twas deleted
